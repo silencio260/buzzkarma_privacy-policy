@@ -44,3 +44,7 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.  
 Contact Information:  
 Email:  bountyhunter603@gmail.com  
+
+### Link to BuzzKarma on Google Playstore: https://play.google.com/store/apps/details?id=com.buzzkarma.rewards
+
+
